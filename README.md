@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 Zaid Ed. can we chat on Telegram? @comet1112
 
 - 🔭 I’m currently working on Web and Blockchain development.
 - 🌱 I’m currently learning latest web and blockchain technology
